@@ -1,1 +1,1 @@
-# Sample :smiley: :tada: :tada:
+# Sample :smiley: :tada: :tada: :tada:
